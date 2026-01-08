@@ -16,7 +16,6 @@ Meu objetivo é atuar em um ambiente colaborativo e desafiador, onde eu possa **
 com projetos inovadores**, aprimorar minha experiência como desenvolvedor e crescer
 profissionalmente na área de tecnologia.
 
-📎 Conecte-se comigo no [LinkedIn](http://linkedin.com/in/pietro-venzon-45b4a4363/) para conhecer melhor meus projetos e experiências!
 
 ---
 
